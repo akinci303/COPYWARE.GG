@@ -1,0 +1,2 @@
+# COPYWARE.GG
+AVAİİBLE 
